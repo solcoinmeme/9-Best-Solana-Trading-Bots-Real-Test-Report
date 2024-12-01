@@ -1,4 +1,3 @@
-# 9-Best-Solana-Trading-Bots-Real-Test-Report
 <b>9 Best Solana Trading Bots Real Test Report</b>
 
 
